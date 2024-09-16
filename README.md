@@ -10,5 +10,10 @@ https://docs.google.com/presentation/d/1KGQx97bduhr8HRPHfeCdxaMAGQHo-sMY/edit?us
 * https://www.youtube.com/watch?v=Q3wa-tWIlUc
 * https://www.youtube.com/watch?v=Ux2LGv-SpAo
 
+# Dicas Hospedagens gratuitas
+* https://www.youtube.com/watch?v=TPXr2fkz0EM
+* https://www.youtube.com/watch?v=FZiza5N6BQU
+* https://www.youtube.com/watch?v=zfAfhx0VbxQ
+
 
 
