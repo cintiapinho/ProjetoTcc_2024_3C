@@ -16,7 +16,7 @@ https://docs.google.com/presentation/d/1KGQx97bduhr8HRPHfeCdxaMAGQHo-sMY/edit?us
 * https://www.youtube.com/watch?v=zfAfhx0VbxQ
 * https://www.youtube.com/watch?v=Y7mGtyXURbo
 
-# Como elabora termos de uso do site
+# Como elabora Termos de Uso e Privacidade do Sistema 
 * https://docs.google.com/document/d/1xcyEFmdOxR2F-OdNQHcy8MEmkWq5vFz-MoCBqxr7WEc/edit?usp=sharing
 
 
