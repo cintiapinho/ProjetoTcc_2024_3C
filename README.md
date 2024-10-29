@@ -19,5 +19,9 @@ https://docs.google.com/presentation/d/1KGQx97bduhr8HRPHfeCdxaMAGQHo-sMY/edit?us
 # Como elaborar Termos de Uso e Privacidade do Sistema 
 * https://docs.google.com/document/d/1xcyEFmdOxR2F-OdNQHcy8MEmkWq5vFz-MoCBqxr7WEc/edit?usp=sharing
 
+# O que precisa ter na apresentação
+* https://docs.google.com/presentation/d/1sWcQtSiKon1Jkr9eJg1NCCcHrRGy1_b2/edit?usp=sharing&ouid=110602137370820731558&rtpof=true&sd=true
+  
+
 
 
